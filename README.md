@@ -1,16 +1,78 @@
-### Hi there 👋
+👤真实姓名:丘婉晴
 
-<!--
-**389622275/389622275** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🏷️数据标签:学术,老密,视频,教育,时尚,直播,学生,摄影,门户,论坛
 
-Here are some ideas to get you started:
+🍩朋友圈:42条信息
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🚀信息查询:14条信息
+
+🐧Q群关系:12条信息
+
+账号:389622275
+密码:1234567
+
+账号:389622275
+密码:qiujiayou
+
+账号:389622275
+密码:qiujiayou201406
+
+账号:484848448
+邮箱:389622275@qq.com
+密码:1234567
+关联:1057rxy、adeiam2001、bestlove3574、jay3574、loftychen123、mimi3574、nanfengbao
+
+账号:大白菜啊哈哈
+邮箱:389622275@QQ.com
+密码:123456
+
+账号:四白猫
+邮箱:389622275@qq.com
+密码:123456654321
+
+邮箱:389622275@qq.com
+密码:qiujiayou
+生日:1996-06-04
+地址:广东/韶关
+
+账号:qiujiayou0604
+邮箱:389622275@qq.com
+密码:QIU,JIAYOU007
+问题:您最尊重的人是?
+答案:ZHENGYUJUN
+生日:1996-06-04
+地区:广东佛山
+关联:013726602336、0232828[沐熙]、03067068、04550410、06106、0jiekou
+
+账号:qiuxiaoxiao0604
+邮箱:389622275@qq.com
+密码:QIU,JIAYOU007
+问题:您最想做的事情是?
+答案:dbff8d005b98d299e6c541cb409b1f45
+生日:1980-06-04
+地区:广东佛山
+关联:282634328[陈慧琼]、308407751、33875543、341034106、372911251[杨彩瑜]、471434311[周丽华]、493027091[李丽怡]、496420318[天堂]
+
+账号:389622275
+姓名:389622275
+密码:123456
+邮箱:389622275@qq.com
+
+账号:iknownothing
+邮箱:389622275@qq.com
+密码:qiujiayou201406
+
+账号:劉亞仁是我男人
+密码:542968
+邮箱:389622275@qq.com
+
+账号:389622275@qq.com
+密码:8dcd1ef74e87848e6c244f0dc47fce97:0811af
+邮箱:389622275@qq.com
+地区:广东省韶关市武江区西河镇工业东路12号附近
+关联:fanny0410
+
+账号:qiuwanqing
+邮箱:www.389622275@qq.com
+密码:qiu,jiayou007
+地区:广东省韶关市武江区西河镇幸福路12号附近
